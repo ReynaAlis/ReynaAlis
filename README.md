@@ -11,7 +11,7 @@
 
 ### Follow me ![favorite_black_24dp](https://github.com/ReynaAlis/ReynaAlis/assets/123259160/ba1f356b-cff7-4079-84f2-7f71c93ba3c9)
 
-https://vk.com/reyna_alis
+https://vk.com/reyna_alis/
 https://www.instagram.com/reyna_nele/  
 https://t.me/smirnova_elaine
 
