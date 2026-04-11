@@ -1,6 +1,6 @@
 <div align="center">
   
-# Hi there! I'm Alyona 👋
+# Hi there! I'm Alena 👋
 
 ## I'm a junior frontend developer
 
